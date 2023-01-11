@@ -18,7 +18,8 @@
 14.  The full file folder of recordings for auto replay accessibility for every event
 25.  Doing great
 26.  Happy box, if it doesn't make you happy it will make itself happy and thereby make you happy
-27.  don't go further or scare people with unnecessary bullshit :)
+27.  https://docs.google.com/forms/d/1HDVHpV8djBgLG73pvwhUQYKP7KTxnHmcp3ne7ueWKMw/edit
+28.  don't go further or scare people with unnecessary bullshit :)
 
 
 #whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavor #happy #notmention #goodgirl ヽ(*ﾟｰﾟ*)ﾉ
