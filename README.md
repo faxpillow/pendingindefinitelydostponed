@@ -3,7 +3,7 @@
 1.  1-minute Film Festival
 1a. Obtain Social Media Followers for this
 1b. Instagram Account current: @wallstbanners @awesomeinvestingdecisions
-35. 100% Track Record Political Predicktions since 1991
+35. 100% Track Record Political Predicktions since 1991 definitely not stonks r not ppls lol
 2.  Wallpapering over performer in middle of road with safety
 3.  Self customized selective permutations of emotion robots interaction party
 4.  Crappiest Awards meticulously printed anyone take home 
