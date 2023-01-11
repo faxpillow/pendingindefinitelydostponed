@@ -23,4 +23,4 @@
 29.  don't go further or scare people with unnecessary bullshit :)
 
 
-#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavor #happy #notmention #endglobalenforced -drafts #reunifysomedaylol10secondhistorypolicies #randomhistoryfacts #  #goodgirl ヽ(*ﾟｰﾟ*)ﾉ
+#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavor #happy #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts #  #goodgirl ヽ(*ﾟｰﾟ*)ﾉ
