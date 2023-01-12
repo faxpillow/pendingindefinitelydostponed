@@ -1,5 +1,6 @@
 # pendingindefinitelypostponed
 
+58. i am sorry i am not a programmer nor ever presumed myself one :) 
 1.  1-minute Film Festival
 1a. Obtain Social Media Followers for this
 1b. Instagram Account current: @awesomeinvestingdecisions  @wallstbanners
@@ -26,7 +27,7 @@
 31.  cheaply ***** **** ****** digital s****** w*********** and ******** ******* ****** ******* ************ 
 32.  why would etc
 33.  https://github.com/faxpillow/aid-awesomeinvestingdecisions/
-
+59. languages known not intuitively: HTML5, CSS3, Javascript, JSON, tiny Ajax, PHP, MySQL, Python basic?, data analysis, Anaconda, intermediate Linux, Notebook, and probably forgot, bad habits learning coding bad for your eyes) 
 
 #whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavor #happy #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts #  #goodgirl ヽ(*ﾟｰﾟ*)ﾉ
 
