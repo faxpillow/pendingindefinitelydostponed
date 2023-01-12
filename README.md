@@ -25,6 +25,7 @@
 30.  global miniscreens of channels broadcasting in global at that time, such as olympics coverage options from x # countries globally visual i already had framework for the screenful settings changeable newsbanners simple no one uses screensaves anymore no need but it's kind of fun to watch already done in different forms this is  minimal only text based i agree with myself it is useless 
 31.  cheaply ***** **** ****** digital s****** w*********** and ******** ******* ****** ******* ************ 
 32.  why would etc
+33.  https://github.com/faxpillow/aid-awesomeinvestingdecisions/
 
 
 #whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavor #happy #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts #  #goodgirl ヽ(*ﾟｰﾟ*)ﾉ
