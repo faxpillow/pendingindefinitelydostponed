@@ -6,7 +6,7 @@ i am sorry i am not a programmer nor ever presumed myself one :)
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
 100% Track Record Political Predicktions since 1991 definitely not stonks r not ppls 사람이 않입니다 ㅋㅎ ㄴㄱ ㅁㅕㅇ.야 jk lol
 Wallpapering over performer in middle of road with safety
-Self customized selective permutations of emotion robots interaction party
+Self customized selective permutations of emotion robots interaction party after learning continuously machine learning :D
 Crappiest Awards meticulously printed anyone take home
 Mostly Textures Happy Rest Square
 Simple webapp autoconverts upload into random unnecessary meme
