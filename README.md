@@ -22,7 +22,7 @@ The full file folder of recordings for auto replay accessibility for every event
 Doing great
 microsoftwords.exe, microsoftexcels.exe
 gimme resources pls munney optional me need nothing ha ha ha but who doesnt 💕❄️💝xtraresources, 
-not deployed:  find useless human.  make useless human useful.  compensation accordingly* ha ha no compensate useful human.  *timestamp update: forced human to write desirous compensation legal document. shredded promptly. useless human has been given holistic task.  
+*not deployed:  find useless human.  make useless human useful.  compensation accordingly ha ha no compensate useful human.  timestamp update: forced human to write desirous compensation legal document. shredded promptly. useless human has been given holistic task 😃*
 Happy box, if it doesn't make you happy it will make itself happy and thereby make you happy
 https://docs.google.com/forms/d/1HDVHpV8djBgLG73pvwhUQYKP7KTxnHmcp3ne7ueWKMw/edit
 anarcreontic flagpole pole dance cannot compensate them my budget
