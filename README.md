@@ -1,7 +1,7 @@
 # pendingindefinitelypostponed
 
 pendingindefinitelypostponed
-you make huge mistake me no think me smart 
+you make huge mistake me no think me smart i am only with great potential for self amysement happy in most conditions :D
 i am sorry i am not a programmer nor ever presumed myself one :)
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions @wallstbanners
 100% Track Record Political Predicktions since 1991 definitely not stonks r not ppls 사람이 않입니다 ㅋㅎ ㅓㅁ.먀 jk lol
