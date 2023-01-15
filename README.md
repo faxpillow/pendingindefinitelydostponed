@@ -18,6 +18,7 @@ An apple iteration
 The ultimately horrific NO!
 The full file folder of recordings for auto replay accessibility for every event
 Doing great
+not deployed:  find useless human.  make useless human useful.  compensation accordingly* ha ha no compensate useful human.  
 Happy box, if it doesn't make you happy it will make itself happy and thereby make you happy
 https://docs.google.com/forms/d/1HDVHpV8djBgLG73pvwhUQYKP7KTxnHmcp3ne7ueWKMw/edit
 anarcreontic flagpole pole dance cannot compensate them my budget
