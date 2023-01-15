@@ -15,7 +15,7 @@ CUHA - completely useless hexadecimal audiovisualizer with infinite customizable
 Comforting statements box
 Days passed since [my] last awesome moment : (0)
 Leave anonymously emoticon box - ajax a little complicated, useless, time consuming, and inevitably messy
-Attach rando football onto someone's computer for unspecified amount of time and then it randomly migrates unharmfully onto someone else in contact make the first pitch somewhere random unspecified :D
+Attach rando naked football onto someone's computer for unspecified amount of time and then it randomly migrates unharmfully onto someone else in contact make the first pitch somewhere random unspecified :D
 An apple iteration
 The ultimately horrific NO!
 The full file folder of recordings for auto replay accessibility for every event
