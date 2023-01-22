@@ -1,6 +1,6 @@
 # pendingindefinitelypostponed
 
-pendingindefinitelypostponed
+pendingindefinitelypostponeduntiliuselesswastetwmake
 you make huge mistake me no think me smart i am only with great potential for self amusement happy in most conditions :D
 i am sorry i am not a programmer nor ever presumed myself one :)
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
@@ -47,7 +47,10 @@ languages known not intuitively: HTML5, CSS3, Javascript, JSON, tiny Ajax, PHP, 
 #whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavorhasbeenfreed  #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl #doesanyoneelseenjoylatelifelearnalgorithms+teachmefingertrixcanintuitRubicksX ヽ(ﾟｰﾟ)ﾉ
 #schadenfreude.com😫 populated with full 5000* story list of horror stories of people living in the US and other parts of Americas, such as a lady whom could not be rehired due to (obv illegal etc) ageism and became bankrupt bc her medical bills , the supereducated blind gentleman whom enjoyed vry much coming out to healthcare protests cannot afford his eye blindness as drops ?!?!  nothing I say is a lie why would you 
 #happy
-
+#i am one of the solv
+#even if I solved it for no one else but my own mind
+#¯\_(ツ)_/¯ 
+#spaceofforgetting make 
 
 
 ialreadyknewthis@gmail.com original
