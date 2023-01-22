@@ -42,7 +42,7 @@ why would etc
 https://github.com/faxpillow/aid-awesomeinvestingdecisions/
 - me have methods and personal maps for all of this and forgot a bunch of more ridiculousness but unimportant etc 
 languages known not intuitively: HTML5, CSS3, Javascript, JSON, tiny Ajax, PHP, MySQL, Python basic?, data analysis, Anaconda, intermediate Linux, Notebook, and probably forgot (bad habits learning coding bad for your eyes)
-#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavorhasbeenfreed #happy #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl ヽ(ﾟｰﾟ)ﾉ
+#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavorhasbeenfreed #happy #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl #doesanyoneelseenjoylatelifeintuit+teachmefingertrixRubicksXcubing ヽ(ﾟｰﾟ)ﾉ
 
 ialreadyknewthis@gmail.com original
 
