@@ -1,6 +1,6 @@
 # pendingindefinitelypostponed
 
-pendingindefinitelypostponeduntiliuselesswastetwmake
+pendingindefinitelypostponeduntiliuselesswastetileuncompensatedlymake
 you make huge mistake me no think me smart i am only with great potential for self amusement happy in most conditions :D
 i am sorry i am not a programmer nor ever presumed myself one :)
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
