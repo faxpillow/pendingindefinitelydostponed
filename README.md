@@ -19,9 +19,11 @@ Attach rando naked football onto someone's computer for unspecified amount of ti
 An apple iteration
 The ultimately horrific NO!
 The full file folder of recordings for auto replay accessibility for every event
+here is my happy collection event playlist https://open.spotify.com/playlist/5POyqqpu35FUHPVHUwKGNJ?si=PnI88DmISqm4yuppPUW6Ig
+
 Doing great
 microsoftwords.exe, microsoftexcels.exe
-gimme resources pls munney optional me need nothing ha ha ha but who doesnt 💕❄️💝xtraresources, 
+pls munney optional me need nothing ha ha ha but who doesnt 💕❄️💝say неартsay as a language 
 *not deployed:  find useless human.  make useless human useful.  compensation accordingly ha ha no compensate useful human.  timestamp update: forced human to write desirous compensation legal document. shredded promptly. useless human has been given holistic task 😃*
 [TIMESTAMP] update:  useless human. has been given holistic task.  did not follow guidelines.  Has adequately self punishment.  Wonderful world.
 Happy box, if it doesn't make you happy it will make itself happy and thereby make you happy
@@ -42,8 +44,10 @@ why would etc
 https://github.com/faxpillow/aid-awesomeinvestingdecisions/
 - me have methods and personal maps for all of this and forgot a bunch of more ridiculousness but unimportant etc 
 languages known not intuitively: HTML5, CSS3, Javascript, JSON, tiny Ajax, PHP, MySQL, Python basic?, data analysis, Anaconda, intermediate Linux, Notebook, and probably forgot (bad habits learning coding bad for your eyes)
-#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavorhasbeenfreed #happy #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl #doesanyoneelseenjoylatelifelearnalgorithms+teachmefingertrixcanintuitRubicksX ヽ(ﾟｰﾟ)ﾉ
-#schadenfreude.com
+#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavorhasbeenfreed  #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl #doesanyoneelseenjoylatelifelearnalgorithms+teachmefingertrixcanintuitRubicksX ヽ(ﾟｰﾟ)ﾉ
+#schadenfreude.com😫 populated with full 5000* story list of horror stories of people living in the US and other parts of Americas, such as a lady whom could not be rehired due to (obv illegal etc) ageism and became bankrupt bc her medical bills , the supereducated blind gentleman whom enjoyed vry much coming out to healthcare protests cannot afford his eye blindness as drops ?!?!  nothing I say is a lie why would you 
+#happy
+
 
 
 ialreadyknewthis@gmail.com original
