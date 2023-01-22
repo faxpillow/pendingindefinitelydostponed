@@ -4,7 +4,7 @@ pendingindefinitelypostponed
 you make huge mistake me no think me smart i am only with great potential for self amusement happy in most conditions :D
 i am sorry i am not a programmer nor ever presumed myself one :)
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
-100% Track Record Political Predicktions since 1991 definitely not stonks r not ppls 사람이 않입니다 ㅋㅎ ㄴㄱ ㅁㅕㅇ.야 jk lol
+100% Track Record Political Predicktions since 1991 definitely not stonks r 사람이 않입니다 ㅋㅎ ㄴㄱ ㅁㅕㅇ.야 jk lol
 Wallpapering over performer in middle of road with safety
 Self customized selective permutations of emotion robots interaction party after learning continuously machine learning :D
 Crappiest Awards meticulously printed anyone take home
@@ -23,10 +23,18 @@ Doing great
 microsoftwords.exe, microsoftexcels.exe
 gimme resources pls munney optional me need nothing ha ha ha but who doesnt 💕❄️💝xtraresources, 
 *not deployed:  find useless human.  make useless human useful.  compensation accordingly ha ha no compensate useful human.  timestamp update: forced human to write desirous compensation legal document. shredded promptly. useless human has been given holistic task 😃*
+[TIMESTAMP] update:  useless human. has been given holistic task.  did not follow guidelines.  Has adequately self punishment.  Wonderful world.
 Happy box, if it doesn't make you happy it will make itself happy and thereby make you happy
-https://docs.google.com/forms/d/1HDVHpV8djBgLG73pvwhUQYKP7KTxnHmcp3ne7ueWKMw/edit
+https://forms.gle/XmEpNnPvKkCcCZma6
+https://forms.gle/uqYRfbs2shfMM5S77
+https://t.co/rqc2v1cyq1
+ no one hate the city but why  
+
+
+
+
 anarcreontic flagpole pole dance cannot compensate them my budget
-don't go further or scare people with unnecessary bullshit :)
+don't go further or scare people with unnecessary things :)
 global miniscreens of channels broadcasting in global at that time, such as olympics coverage options from x # countries globally visual i already had framework for the screenful settings changeable newsbanners simple no one uses screensaves anymore no need but it's kind of fun to watch already done in different forms this is minimal only text based i agree with myself it is useless
 cheaply ***** **** ****** digital ******* w*********** and ******** ******* ****** ******* ************
 why would etc
@@ -34,7 +42,7 @@ why would etc
 https://github.com/faxpillow/aid-awesomeinvestingdecisions/
 - me have methods and personal maps for all of this and forgot a bunch of more ridiculousness but unimportant etc 
 languages known not intuitively: HTML5, CSS3, Javascript, JSON, tiny Ajax, PHP, MySQL, Python basic?, data analysis, Anaconda, intermediate Linux, Notebook, and probably forgot (bad habits learning coding bad for your eyes)
-#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavor #happy #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl ヽ(ﾟｰﾟ)ﾉ
+#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavorhasbeenfreed #happy #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl ヽ(ﾟｰﾟ)ﾉ
 
 ialreadyknewthis@gmail.com original
 
