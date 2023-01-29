@@ -18,6 +18,10 @@ Leave anonymously emoticon box - ajax a little complicated, useless, time consum
 Attach rando naked football onto someone's computer for unspecified amount of time and then it randomly migrates unharmfully onto someone else in contact make the first pitch somewhere random unspecified :D
 An apple iteration
 The ultimately horrific NO!
+
+
+why does this document keep reverting 
+
 The full file folder of recordings for auto replay accessibility for every event
 here is my happy collection event playlist https://open.spotify.com/playlist/5POyqqpu35FUHPVHUwKGNJ?si=PnI88DmISqm4yuppPUW6Ig
 
