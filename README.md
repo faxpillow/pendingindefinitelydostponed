@@ -9,11 +9,6 @@ Wallpapering over performer in middle of road with safety
 Self customized selective permutations of emotion robots interaction party after learning continuously machine learning :D
 Crappiest Awards meticulously printed anyone take home
 Mostly Textures Happy Rest Square
-
-here is a large accrued postal bulkmail collection of seasonal, relevant paper coupons that giveaway free item or double your item at no cost.  Pls donate however much you want of the savings into this cause or xyz :D 
-
-
-
 result of person whom learned everything in world not arabic proverb which keeps appearing on tv  
 Simple webapp autoconverts upload into random unnecessary meme
 CUHA - completely useless hexadecimal audiovisualizer with infinite customizable easy
@@ -23,8 +18,6 @@ Leave anonymously emoticon box - ajax a little complicated, useless, time consum
 Attach rando naked football onto someone's computer for unspecified amount of time and then it randomly migrates unharmfully onto someone else in contact make the first pitch somewhere random unspecified :D
 An apple iteration
 The ultimately horrific NO!
-
-note to dumself: find the very cleanly logical and well-presented analysis sample on the non messy account what was the name?!  List 53+ former pen names most irrecoverable accounts: Dougandy, ToteMuffy, WaDafu, Run Gambia,  CapriciaStalls, Nimxut, Inxmut, BuddhaBellyCookies, Yakrabbits, Y4kr4bbit, faxpillow, fax pisz, faxpizza, Ed, Mackmark, TheEjaculate (held for safety), Frank B Wolf, Wilson Benmark, Ephy Buffalo, Barto Sache, xXolvXxlol, Burt Kirkland, Cat Parker, Layone Wiles, Morton Cerebos, Isogiv, Uandi Sununo, Eai Fs, shutdowned, naegleria fowleri, myname vogon, donotshowmeyourgenitals, The Luddites (band), (undisclosed due to content) (band),   etc. partial list forgetting
 
 The full file folder of recordings for auto replay accessibility for every event
 here is my happy collection event playlist https://open.spotify.com/playlist/5POyqqpu35FUHPVHUwKGNJ?si=PnI88DmISqm4yuppPUW6Ig
@@ -47,11 +40,14 @@ why would etc
 https://github.com/faxpillow/aid-awesomeinvestingdecisions/
 - me have methods and personal maps for all of this and forgot a bunch of more ridiculousness but unimportant etc 
 languages known not intuitively: HTML5, CSS3, Javascript, JSON, tiny Ajax, PHP, MySQL, Python basic?, data analysis, Anaconda, intermediate Linux, Notebook, and probably forgot (bad habits learning coding bad for your eyes)
-#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavorhasbeenfreed  #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl #doesanyoneelseenjoylatelifelearnalgorithms+teachmefingertrixcanintuitRubicksX ヽ(ﾟｰﾟ)ﾉ
+#whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavorhasbeenfreed  #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl # ヽ(ﾟｰﾟ)ﾉ
  populated with full 5000* story list of horror stories of people living in the US and other parts of Americas, such as a lady whom could not be rehired due to (obv illegal etc) ageism and became bankrupt bc her medical bills , the supereducated blind gentleman whom enjoyed vry much coming out to healthcare protests cannot afford his eye blindness as drops ?!?!
-#happy
-#even if I solved it for no one else but my own mind
+#+2000 random ideas that are variously amusing to imagine
+#even if I solved something for someone whom won't see again sorry i'm weird!
+
 #¯\_(ツ)_/¯ 
+
+note to dumself: find the very cleanly logical and well-presented analysis sample on the non messy account what was the name?!  List 53+ former pen names most irrecoverable accounts: Dougandy, ToteMuffy, WaDafu, Run Gambia,  CapriciaStalls, Nimxut, Inxmut, BuddhaBellyCookies, Yakrabbits, Y4kr4bbit, faxpillow, fax pisz, faxpizza, Ed, Mackmark, TheEjaculate (held for safety), Frank B Wolf, Wilson Benmark, Ephy Buffalo, Barto Sache, xXolvXxlol, Burt Kirkland, Cat Parker, Layone Wiles, Morton Cerebos, Isogiv, Uandi Sununo, Eai Fs, shutdowned, myname vogon, donotshowmeyourgenitals, The Luddites (band), (undisclosed due to content) (band),  etc. partial list 
 #spaceofforgetting make 
 subscriber rate in NY within the 8.42 mill population and the 500,000 NYC households have no Internet access), where they’d generate an approximate 2-hour quota of time per day, promoted thru a widget irresistible to participants, with only the households with no Internet access, and the active screensaver/widget, it would take approximately 77 days, which is less than the time the NY Health Act stalled, to raise the $63 billion needed to fix the entire NYCHA system, and have enough left over to buy out the Senate into supporting the NYHealth Act (assuming we are not pretending that money doesn’t make the gov’t/lobbyist lol system go round) lol.
 
