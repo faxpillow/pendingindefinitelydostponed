@@ -24,8 +24,7 @@ Attach rando naked football onto someone's computer for unspecified amount of ti
 An apple iteration
 The ultimately horrific NO!
 
-
-why does this document keep reverting 
+note to dumself: find the very cleanly logical and well-presented analysis sample on the non messy account what was the name?!  List 53+ former pen names most irrecoverable accounts: Dougandy, ToteMuffy, WaDafu, Run Gambia,  CapriciaStalls, Nimxut, Inxmut, BuddhaBellyCookies, Yakrabbits, Y4kr4bbit, faxpillow, fax pisz, faxpizza, Ed, Mackmark, TheEjaculate (held for safety), Frank B Wolf, Wilson Benmark, Ephy Buffalo, Barto Sache, xXolvXxlol, Burt Kirkland, Cat Parker, Layone Wiles, Morton Cerebos, Isogiv, Uandi Sununo, Eai Fs, shutdowned, naegleria fowleri, myname vogon, donotshowmeyourgenitals, The Luddites (band), (undisclosed due to content) (band),   etc. partial list forgetting
 
 The full file folder of recordings for auto replay accessibility for every event
 here is my happy collection event playlist https://open.spotify.com/playlist/5POyqqpu35FUHPVHUwKGNJ?si=PnI88DmISqm4yuppPUW6Ig
