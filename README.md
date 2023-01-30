@@ -4,6 +4,10 @@ pendingindefinitelydostponeduntiliuselesswastetileuncompensatedlymake
 you make huge mistake me no think me smart i am only with great potential for self amusement happy in most conditions :D
 i am sorry i am not a programmer nor ever presumed myself one :)
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
+
+The neutral friend of everyone on a social media result and its complementary question -->
+Shared accounts within NYC not need to be in person networked to the limit of followership, a collection of accounts to push strategic choices by branching modular subgroups, and the profit comes from the wider exposure but wouldn't overload any individual account bc all it would be is a option .  Or, brute force in-person just accrue followers for desired content once chosen self or otherwise
+
 100% Track Record Political Predicktions since 1991 definitely not stonks  ㄴㄱ ㅁㅕㅇ.야  lol
 Wallpapering over performer in middle of road with safety
 Self customized selective permutations of emotion robots interaction party after learning continuously machine learning :D
@@ -47,7 +51,7 @@ languages known not intuitively: HTML5, CSS3, Javascript, JSON, tiny Ajax, PHP, 
 
 #¯\_(ツ)_/¯ 
 
-note to dumself: find the very cleanly logical and well-presented analysis sample on the non messy account what was the name?!  List 53+ former pen names most irrecoverable accounts: Dougandy, ToteMuffy, WaDafu, Run Gambia,  CapriciaStalls, Nimxut, Inxmut, BuddhaBellyCookies, Yakrabbits, Y4kr4bbit, faxpillow, fax pisz, faxpizza, Ed, Mackmark, TheEjaculate (held for safety), Frank B Wolf, Wilson Benmark, Ephy Buffalo, Barto Sache, xXolvXxlol, Burt Kirkland, Cat Parker, Layone Wiles, Morton Cerebos, Isogiv, Uandi Sununo, Eai Fs, shutdowned, myname vogon, donotshowmeyourgenitals, The Luddites (band), (undisclosed due to content) (band),  etc. partial list 
+
 #spaceofforgetting make 
 subscriber rate in NY within the 8.42 mill population and the 500,000 NYC households have no Internet access), where they’d generate an approximate 2-hour quota of time per day, promoted thru a widget irresistible to participants, with only the households with no Internet access, and the active screensaver/widget, it would take approximately 77 days, which is less than the time the NY Health Act stalled, to raise the $63 billion needed to fix the entire NYCHA system, and have enough left over to buy out the Senate into supporting the NYHealth Act (assuming we are not pretending that money doesn’t make the gov’t/lobbyist lol system go round) lol.
 
@@ -55,7 +59,9 @@ subscriber rate in NY within the 8.42 mill population and the 500,000 NYC househ
 
 If just 25 percent (Korea’s national volunteer rate) of the 50 million people in Korea voluntarily pitched 10 bucks for every time NK violated/limited its people's rights similarly to how the Rights vs Rights group did in Wunsiedel against the Fascist march, and used a portion of it along with a volunteer group of disenfranchised devs to build a monolith of portable library devices like the Lantern that can receive free data from space in each major city, and offer free protected unlimited data to those who spend a 2-hour quota of time putting up a screensaver that automatically circuits one hit per sec on a website where hit raises 25 cents per click (given the 75% digital subscriber rate in Korea within the 26mill employed population), promote it thru a fashion accessory irresistible to the kids who flaunt their wealth to date each other in cafes, this fashion accessory to symbolise that they’ll donate an “extra cup” for an anonymous NK individual on threat day for each cup of coffee sold in each of the 12,300 coffee shops (280 per day approx)… it would take approximately 82 threats, aka a little over a year, more depending on the unobtrusive extraction rate of specific groups to drain NK of its entire civilian population, and thereby any means of sustainability for the country outside of the regime’s military
 
+there's a better set of plans too collaboration open anytime 
+
+note to dumself: find the very cleanly logical and well-presented analysis sample on the non messy account what was the name?!  List 53+ former pen names most irrecoverable accounts: Dougandy, ToteMuffy, WaDafu, Run Gambia,  CapriciaStalls, Nimxut, Inxmut, BuddhaBellyCookies, Yakrabbits, Y4kr4bbit, faxpillow, fax pisz, faxpizza, Ed, Mackmark, TheEjaculate (held for safety), Frank B Wolf, Wilson Benmark, Ephy Buffalo, Barto Sache, xXolvXxlol, Burt Kirkland, Cat Parker, Layone Wiles, Morton Cerebos, Isogiv, Uandi Sununo, Eai Fs, shutdowned, myname vogon, donotshowmeyourgenitals, The Luddites (band), (undisclosed due to content) (band),  etc. partial list 
 
 ialreadyknewthis@gmail.com original
 
-copyright faxpillow
