@@ -10,6 +10,7 @@ I can find or rebuild my unitmilk, the pastel toned monitor wrapper beautiful al
 The neutral friend of everyone on a social media result and its complementary question -->
 yay I saw this happen on a small scale
 
+the every economic model system in the world interface was my idea and not programmer non ability more knowledge can tell u has changed current was my idea from a decade ago and it is nice to know what many things can be done has nothing to do with the interest rates of any country I am not sorry! 
 
 
 Shared accounts within NYC not need to be in person networked to the limit of followership, a collection of accounts to push strategic choices by branching modular subgroups, and the profit comes from the wider exposure but wouldn't overload any individual account bc all it would be is a option .  Or, brute force in-person just accrue followers for desired content once chosen self or otherwise
