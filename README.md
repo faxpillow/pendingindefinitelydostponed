@@ -18,7 +18,7 @@ I don't think really studying what any specific company does or forcing a head o
 
 Wallpapering over performer in middle of road with safety
 
-100% Track Record Political Predicktions since 1991 definitely not stonks  ㄴㄱ ㅁㅕㅇ.야  lol
+100% Track Record Political policy also Predicktions since definitely not stonks  ㄴㄱ ㅁㅕㅇ.야  
 
 Self customized selective permutations of emotion robots interaction party after learning continuously machine learning :D
 Crappiest Awards meticulously printed anyone take home
