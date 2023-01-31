@@ -1,9 +1,10 @@
 # pendingindefinitelydostponed 
 
 pendingindefinitelydostponeduntiliuselesswastetileuncompensatedlymake
-you make huge mistake me no think me smart i am only with great potential for self amusement happy in most conditions :D
-i am sorry i am not a programmer nor ever presumed myself one :)
+ i am a scriptzygote.  
+i am sorry i am not a programmer nor ever presumed myself one :) with great potential for self amusement happy in most conditions :D
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
+
 
 The neutral friend of everyone on a social media result and its complementary question -->
 Shared accounts within NYC not need to be in person networked to the limit of followership, a collection of accounts to push strategic choices by branching modular subgroups, and the profit comes from the wider exposure but wouldn't overload any individual account bc all it would be is a option .  Or, brute force in-person just accrue followers for desired content once chosen self or otherwise
