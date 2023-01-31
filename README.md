@@ -4,7 +4,7 @@ pendingindefinitelydostponeduntiliuselesswastetileuncompensatedlymake
  i am a scriptzygote.  
 i am sorry i am not a programmer nor ever presumed myself one :) with great potential for self amusement happy in most conditions :D
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
-I will find or rebuild my unitmilk, the pastel toned monitor wrapper beautiful always reactive on every background somewhat tedious, the small exe that drops tinysmoll snow piles on the screen with did I mention already? sry that was from a few decades ago, and I was cannot build compiler at that Boolean age before compilers or visual c everything is in any book why not!  oh unsad alone life ¯\_(ツ)_/¯ 
+I will find or rebuild my unitmilk, the pastel toned monitor wrapper beautiful always reactive on every background somewhat tedious, the small exe that drops tinysmoll snow piles on the screen with did I mention already? sry that was from a few decades ago, and I was cannot build compiler at that Boolean age before compilers or visual c everything is in any book why not!  oh unsad alone life if calculator team becomes computer team I don't know if I can follow trust me it not like riding a bike or playing musical instruments   ¯\_(ツ)_/¯ 
 I don't think really studying what any specific company does or forcing a head of the company to be Rupert Murdoch naked outside on a rainy day can still be my safeword to yeah
 
 
