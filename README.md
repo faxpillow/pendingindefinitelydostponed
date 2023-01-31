@@ -5,16 +5,21 @@ pendingindefinitelydostponeduntiliuselesswastetileuncompensatedlymake
 i am sorry i am not a programmer nor ever presumed myself one :) with great potential for self amusement happy in most conditions :D
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
 I can find or rebuild my unitmilk, the pastel toned monitor wrapper beautiful always reactive on every background somewhat tedious, the small exe that drops tinysmoll snow piles on the screen with did I mention already? sry that was from a few decades ago, and I was cannot build compiler at that Boolean age before compilers or visual c everything is in any book why not etc
-I don't think really studying what any specific company does or forcing a head of the company to be Rupert Murdoch naked outside on a rainy day can still be my safeword to yeah
 
 
 The neutral friend of everyone on a social media result and its complementary question -->
 yay I saw this happen on a small scale
 
+
+
 Shared accounts within NYC not need to be in person networked to the limit of followership, a collection of accounts to push strategic choices by branching modular subgroups, and the profit comes from the wider exposure but wouldn't overload any individual account bc all it would be is a option .  Or, brute force in-person just accrue followers for desired content once chosen self or otherwise
 
-100% Track Record Political Predicktions since 1991 definitely not stonks  ㄴㄱ ㅁㅕㅇ.야  lol
+I don't think really studying what any specific company does or forcing a head of the company to be Rupert Murdoch naked outside on a rainy day can still be my safeword to yeah
+
 Wallpapering over performer in middle of road with safety
+
+100% Track Record Political Predicktions since 1991 definitely not stonks  ㄴㄱ ㅁㅕㅇ.야  lol
+
 Self customized selective permutations of emotion robots interaction party after learning continuously machine learning :D
 Crappiest Awards meticulously printed anyone take home
 Mostly Textures Happy Rest Square
