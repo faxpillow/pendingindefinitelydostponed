@@ -18,7 +18,7 @@ I don't think really studying what any specific company does or forcing a head o
 
 Wallpapering over performer in middle of road with safety
 
-0 scandals 0 bs 0 b$ 0 ukn etc 
+0 scandals 0 bs 0 b$ 0 ukn 0 lies 0 liez etc 
 
 100% Track Record Political policy also Predicktions since definitely not stonks  ㄴㄱ ㅁㅕㅇ.야  
 
