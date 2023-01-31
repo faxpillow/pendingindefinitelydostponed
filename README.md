@@ -55,9 +55,9 @@ don't go further or scare people with unnecessary things :)
 global miniscreens of channels broadcasting in global at that time, such as olympics coverage options from x # countries globally visual i already had framework for the screenful settings changeable newsbanners simple no one uses screensaves anymore no need but it's kind of fun to watch already done in different forms this is minimal only text based i agree with myself it is useless
 cheaply ***** **** ****** digital ******* w*********** and ******** ******* ****** ******* ************
 why would etc
-- simplified text based binary clock 
+simplified text based binary clock 
 https://github.com/faxpillow/aid-awesomeinvestingdecisions/
-- me have methods and personal maps for all of this and forgot a bunch of more ridiculousness but unimportant etc 
+me have methods and personal maps for all of this and forgot a bunch of more ridiculousness but unimportant etc 
 languages known not intuitively: HTML5, CSS3, Javascript, JSON, tiny Ajax, PHP, MySQL, Python basic?, data analysis, Anaconda, intermediate Linux, Notebook, and probably forgot (bad habits learning coding bad for your eyes)
 #whereiskelleybrannon #stopanti-aapihatreds #freesomething #freemichaelspavorhasbeenfreed  #notmention #endglobalenforced -drafts #reunifysomedaylolsecondhistorypolicieslol #alwaystruepredictions #randomhistoryfacts # #goodgirl # ヽ(ﾟｰﾟ)ﾉ
  populated with full 5000* story list of horror stories of people living in the US and other parts of Americas, such as a lady whom could not be rehired due to (obv illegal etc) ageism and became bankrupt bc her medical bills , the supereducated blind gentleman whom enjoyed vry much coming out to healthcare protests cannot afford his eye blindness as drops ?!?!
