@@ -12,6 +12,8 @@ yay I saw this happen on a small scale
 
 the every economic model system in the world interface was my idea and not programmer non ability more knowledge can tell u has changed current was my idea from a decade ago and it is nice to know what many things can be done has nothing to do with the interest rates of any country I am not sorry! 
 
+doesn't matter every day diff I'm just saying i understand all tlfcfol factors of bourse market just 
+
 
 Shared accounts within NYC not need to be in person networked to the limit of followership, a collection of accounts to push strategic choices by branching modular subgroups, and the profit comes from the wider exposure but wouldn't overload any individual account bc all it would be is a option .  Or, brute force in-person just accrue followers for desired content once chosen self or otherwise
 
@@ -22,6 +24,7 @@ Wallpapering over performer in middle of road with safety
 0 scandals 0 bs 0 b$ 0 ukn 0 lies 0 liez etc 
 
 100% Track Record Political policy also Predicktions since definitely not stonks  ㄴㄱ ㅁㅕㅇ.야  
+
 
 Self customized selective permutations of emotion robots interaction party after learning continuously machine learning :D
 Crappiest Awards meticulously printed anyone take home
