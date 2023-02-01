@@ -8,7 +8,16 @@ I can find or rebuild my unitmilk, the pastel toned monitor wrapper beautiful al
 
 
 The neutral friend of everyone on a social media result and its complementary question -->
-yay I saw this happen on a small scale
+ yay I saw this happen on a small scale 
+
+Imagine dealing with one’s work environment or residential management in the United States as if English was the only language in the world you didn’t learn 🤣
+
+I’m sure probably someone by now has made figuring out how it would sound for a self learning ai to infer English; what and where would the “glitches” be?  What are the most uninimitable and the variant from any metric? If one was to put a bias on one or other, would dialects develop naturally, and where does a model of geohistorical dialectic differ the most?  “Decoding” connections between language process what are sociological demographic traits of regions with most machine predictably similar trends?  I lost my thot of train
+
+I look forward to increasing my inputting speed on the keypads even further ha ha ha:  In fact, I could probably waste time soldering or programming some miniature automatic units that auto input your phone number via worn proximity in the Duane Reade’s, and make a fantastically choose out of 6 superfast beeps into the machine or even an accessibility autopresser.  You put key in numbers in device, like those whom would need an automatic cube solver?  Less refined kind of mechanism except not permutative just fixed ! And Autocad dimensions of keypad.  Design around putting in input in one quick STAMP and blelrlrl there
+I feel as if elderly folx whom want their u know points would enjoy them.  Am i an elderly folk?  ¯\_(ツ)_/
+eventually, the immediate aforementioned can become a street option for alternate communally sponsored Social Security services.  we all know the enormous cracks in our system. I suppose we will have to fill them in before we all get murdered before even getting to a witheringly malnourished geriatric lives due to variously string to stagflation etc  
+
 
 the every economic model system in the world interface was my idea and not programmer non ability more knowledge can tell u has changed current was my idea from two decades ago and it is nice to know what many things can be done has nothing to do with the interest rates of any country I am not sorry! 
 
