@@ -6,6 +6,12 @@ i am sorry i am not a programmer nor ever presumed myself one :) with great pote
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
 I can find or rebuild my unitmilk, the pastel toned monitor wrapper beautiful always reactive on every background somewhat tedious, the small exe that drops tinysmoll snow piles on the screen with did I mention already? sry that was from a few decades ago, and I was cannot build compiler at that Boolean age before compilers or visual c everything is in any book why not etc
 
+site of celebrations in every country photos w sources when unhappy or free :)
+
+forgot needing to do something specific   
+
+
+
 
 The neutral friend of everyone on a social media result and its complementary question -->
  yay I saw this happen on a small scale 
