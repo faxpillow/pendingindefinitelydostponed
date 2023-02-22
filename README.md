@@ -19,6 +19,8 @@ Installation time perceptions alteration via vis a vis and with cctv redactive m
 
 - The third iteration, for strictly the calendar
 
+- If not, at least I can still make folks visualize it in their heads with even consumer limited inputs are enough to go far
+
 the installation is fully neutral in form, presentation, ; purpose of and will be seen as the project progresses
 
 is it safe to put my ideas here esp when I have been extraordinarily abused for triple standards
