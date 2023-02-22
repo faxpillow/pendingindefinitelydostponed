@@ -11,7 +11,17 @@ site of celebrations in every country photos w sources when unhappy or free :)
 forgot needing to do something specific   
 
 
+Installation time perceptions alteration via vis a vis and with cctv redactive mirrors using regular 
 
+- As of now, do not have the programming acapabilities to create approximal live reactive map showing lines from identifying an open list of location points within the [can do map may require googleapis] to correlatory locations of live transactions (scraper for individual, short parameter, hedge on a time axis) 
+
+- A second iteration, for news occurrences, as well as the possibility to do an expansion of lines outwards from point with retrodating dotted line outputs for, e.g. legal dates of presented occurrences, directly related maps outwards of historical precedents (specifically relevant to racial violence, just locations, it would be harrowing to go through), the speed variables can be changed manipulated with open parameters to create a room of with what we consider time in a basic modular circular structure with considerations, mid-experience, the [omitted]?, personal research, the eigengrau gestalt hyperaware of time passing and unawareness, the feeling is given to add by participant in positions, may use a ticket provided colored dot on the floor with their open reason of choice maximal or minimal experiences, video of duration and visitor interaction
+
+- The third iteration, for strictly the calendar
+
+the installation is fully neutral in form, presentation, ; purpose of and will be seen as the project progresses
+
+is it safe to put my ideas here esp when I have been extraordinarily abused for triple standards
 
 The neutral friend of everyone on a social media result and its complementary question -->
  yay I saw this happen on a small scale 
