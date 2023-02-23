@@ -17,7 +17,11 @@ Installation time perceptions alteration via vis a vis and with cctv redactive m
 
 - A second iteration, for news occurrences, as well as the possibility to do an expansion of lines outwards from point with retrofitted dotted line outputs for, e.g. legal dates of presented occurrences, directly related maps outwards of historical precedents (specifically relevant to racial violence, just locations/names/dates/ no harrowing bipoc folks), + the speed variables can be changed manipulated with open parameters to create of with what we consider time in a basic modular circular structure with considerations, mid-experience, the [omitted]?, personal research, the eigengrau gestalt hyperaware of time passing and unawareness, video of duration and visitor interaction, content site no need self made tech rider proposal
 
-- The third iteration, for strictly the calendar
+- The third iteration, for strictly the calendar for further research from the advantages of being able to represent large trends visually
+
+- The question of US externally (+ extraordinary) renditioned tested policies 
+
+- How externally independently generated strategies in different regions are adapted and re-implemented in the US 
 
 - If not, at least I can still make folks visualize it in their heads with even consumer limited inputs are enough to go far
 
