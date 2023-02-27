@@ -10,7 +10,7 @@ site of celebrations in every country photos w sources when unhappy or free :)
 
 forgot needing to do something specific   
 
-- implement new version of street artist fund w customizable charms and indicate to take $ % off alcohol voluntary relinquish some portion of alcohol purchase to support collective street artist fund 100% of proceeds go directly to artists 
+- implement new version of street artist fund w customizable charms and indicate to take $ % off alcohol voluntary relinquish some portion of alcohol purchase to support collective street artist fund 100% of proceeds go directly to artists, w different forms of royalties to involved 
 
 Installation time perceptions alteration via vis a vis and with cctv redactive mirrors in a neutral room using regular + '' the feeling is given to add by participant in positions, may use a ticket provided colored three dots on the floor with their open reason of choice maximal, center, and minimal experiences, 
 
