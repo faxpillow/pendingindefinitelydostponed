@@ -16,6 +16,10 @@ forgot needing to do something specific
 
 Installation time perceptions alteration via vis a vis and with cctv redactive mirrors in a neutral room using regular + '' the feeling is given to add by participant in positions, may use a ticket provided colored three dots on the floor with their open reason of choice maximal, center, and minimal experiences, 
 
+- first discovered the political salience of up to 6,000 horror stories within jobforums, starting with indeed.com
+-  /* addendum there was a collection of , previous to , the collection of great resignation unhappy stories
+-  biggest embezzlers of the government i am not a lobbyist sorry i can tell you whom is lol
+
 - As of now, do not have the programming acapabilities to create approximal live reactive map showing lines from identifying an open list of location points within the [can do map may require googleapis] to correlatory locations of live transactions (scraper for individual, short parameter, hedge on a time axis) 
 
 - A second iteration, for news occurrences, as well as the possibility to do an expansion of lines outwards from point with retrofitted dotted line outputs for, e.g. legal dates of presented occurrences, directly related maps outwards of historical precedents (specifically relevant to racial violence, just locations/names/dates/ no harrowing bipoc folks), + the speed variables can be changed manipulated with open parameters to create of with what we consider time in a basic modular circular structure with considerations, mid-experience, the [omitted]?, personal research, the eigengrau gestalt hyperaware of time passing and unawareness, video of duration and visitor interaction, content site no need self made tech rider proposal
