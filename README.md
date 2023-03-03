@@ -10,6 +10,7 @@ site of celebrations in every country photos w sources when unhappy or free :)
 
 forgot needing to do something specific   
 
+Mini patron $0-x increments  auction site artists 
 
 I was considering being able to circumvent establishment politics to fundraise for a small community fund: 
  
