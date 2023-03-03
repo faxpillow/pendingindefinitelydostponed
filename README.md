@@ -12,6 +12,10 @@ forgot needing to do something specific
 
 Mini patron $0-x increments  auction site artists 
 
+The formalist to structural logistical incentives for explaining the extantly requisite or globally necessary requirements for the change the Concert A from 440-442-444 hz Climate change tragedies spiral of silence fully automated systems when is 
+
+Already informally proposed expanded accessibility options and magnifying handouts for elderly museum label reading   
+
 I was considering being able to circumvent establishment politics to fundraise for a small community fund: 
  
 For example, a tiny designation that gives (specified benefits) in view of taking an (elective %, or standardized to preferences of participant establishments, or specific $ amount*) of a person’s drink at an establishment, to be deposited in a fund, that can go towards a specific community cause (voted upon by the participants?, or to benefit the street employees of NYC,  and/or young artists and musicians)?   It could be as easy in implementation as requesting drinking establishments to add an extra etpos button for *, and to be able to tie that * to a QR code handout that gives the bearer of the designation a set of “points” for having electively relinquished a small portion of their drink.  The points can be exchanged for possibly custom artworks, tiny social benefits, or, a ticket to a contributorawesome celebration hosted somewhere!*  This would probably require a light webapp, which (due to lack of specialized expertise) I could provide, but would take some time.
