@@ -10,7 +10,28 @@ site of celebrations in every country photos w sources when unhappy or free :)
 
 forgot needing to do something specific   
 
-- implement new version of street artist fund w customizable charms and indicate to take $ % off alcohol voluntary relinquish some portion of alcohol purchase to support collective street artist fund 100% of proceeds go directly to artists, w different forms of royalties to involved 
+
+I was considering being able to circumvent establishment politics to fundraise for a small community fund: 
+ 
+For example, a tiny designation that gives (specified benefits) in view of taking an (elective %, or standardized to preferences of participant establishments, or specific $ amount*) of a person’s drink at an establishment, to be deposited in a fund, that can go towards a specific community cause (voted upon by the participants?, or to benefit the street employees of NYC,  and/or young artists and musicians)?   It could be as easy in implementation as requesting drinking establishments to add an extra etpos button for *, and to be able to tie that * to a QR code handout that gives the bearer of the designation a set of “points” for having electively relinquished a small portion of their drink.  The points can be exchanged for possibly custom artworks, tiny social benefits, or, a ticket to a contributorawesome celebration hosted somewhere!*  This would probably require a light webapp, which (due to lack of specialized expertise) I could provide, but would take some time.
+ 
+In participating, if listed as a non-profit status, it might be possible to implement a way to designate small-businesses under promoting a “charitable cause (directly benefiting the local constituents of the city)” and thereby be able to arrange for a possible extra margin of tax breaks, minor payouts, or some form of extra benefits for the participating businesses.  If the latter is not viable, then I knew a few legal avenues to designate small businesses under a different category of small philanthropy, or would be happy to assist researching how to do so.  In fact, I am even friendly to the notion of doing the footwork personally and can target every establishment starting from a strategy of safe and amenable areas, possibly with overlap to the NYHA-supporting venues.  I’m trying to remember what the technical terminology was, but
+ 
+I’ve discussed this lightly with some establishments; they are in enthusiastic support of the potential of the idea.  On a staff level, one owner mentioned possible difficulties in implementing a “smaller drink” – would it be a “pony cup” situation (either way, one bottle of alcohol contains 50+ shots, so the question of an actual amount outside of a weighted racks bar could be relatively negligible).  I would not mind self-funding some of the startup revenue, although I do not particularly foresee that that being necessary.  
+ 
+Also, some notes that might be of relevant applicable interest (or to your previous knowledge):
+ 
+The vast majority of service jobs are not currently unionized outside of informal arrangements; there is an extant disparity between industrial job protections given equitable depending ranges of occupational hazards, and the fact that industrial plants can be relocated across international boundaries unlike service sectors
+We know this but 1938 Parkchester NYC  à 1942 required amendment to state insurance codes to permit insurers in low rent housing starting w Stuytown, Metlife with a 25 yr tax abatement with public money divestment
+In Buffalo, NY, ¾ of refinance loans offered to minorities were subprime, with a 4x borrowing rate in a situation wherein 41%-61% of borrowers w subprime loans would have been able to qualify for conventional financing w lower rates
+20% of 200% market values, if the full total assessed value is divided into the budget, yields low; if city total assessed value is low div into the same budget will yield a high rate; a low rate * high value yields same tax rev as high rate in low assessments
+Source: Richard Rothstein, The Color of Law
+ 
+*As far as I’ve read, the highest margin of return is possible from an open elective range method (Yale biz, later organically implemented also by entertainment groups)
+ 
+**This ties into a different idea which I dedicate to the BIPOC sergeant friend from DC with whom I was discussing the possibility for a (all budgets accommodated) party company for minor/major life events, such as, a job change, or a divorce.  Cherish the love. 
+ 
+*** I still have yet to even initiate the [One]1-Min Film Festival
 
 - resuscitate SexyCongress including facial metric sexiness forms not touch Senate for now bc controversy
 
