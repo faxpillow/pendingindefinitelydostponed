@@ -1,12 +1,14 @@
 # pendingindefinitelydostponed 
 
+- i will give free sex possibly paid sex to the person whom helps me find the person whom has been for a few days at this current point (3/4/23) monitoring me 
+
 pendingindefinitelydostponeduntiliuselesswastetileuncompensatedlymake
  i am a scriptzygote.  
 i am sorry i am not a programmer nor ever presumed myself one :) with great potential for self amusement happy in most conditions :D
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
 I can find or rebuild my unitmilk, the pastel toned monitor wrapper beautiful always reactive on every background somewhat tedious, the small exe that drops tinysmoll snow piles on the screen with did I mention already? sry that was from a few decades ago, and I was cannot build compiler at that Boolean age before compilers or visual c everything is in any book why not etc
 
-site of celebrations in every country photos w sources when unhappy or free :)
+site of celebrations in every country photos w sources when unhappy or free dance then gift to osram documentarian  :)
 
 forgot needing to do something specific   
 
@@ -15,6 +17,9 @@ Mini patron $0-x increments  auction site artists
 The formalist to structural logistical incentives for explaining the extantly requisite or globally necessary requirements for the change the Concert A from 440-442-444 hz Climate change tragedies spiral of silence fully automated systems when is 
 
 Already informally proposed expanded accessibility options and magnifying handouts for elderly museum label reading   
+
+
+sexracks: a simple vba script that makes move cursor space across lol like a robot learning to touch itself 
 
 I was considering being able to circumvent establishment politics to fundraise for a small community fund: 
  
@@ -49,6 +54,10 @@ Installation time perceptions alteration via vis a vis and with cctv redactive m
 - As of now, do not have the programming acapabilities to create approximal live reactive map showing lines from identifying an open list of location points within the [can do map may require googleapis] to correlatory locations of live transactions (scraper for individual, short parameter, hedge on a time axis) 
 
 - A second iteration, for news occurrences, as well as the possibility to do an expansion of lines outwards from point with retrofitted dotted line outputs for, e.g. legal dates of presented occurrences, directly related maps outwards of historical precedents (specifically relevant to racial violence, just locations/names/dates/ no harrowing bipoc folks), + the speed variables can be changed manipulated with open parameters to create of with what we consider time in a basic modular circular structure with considerations, mid-experience, the [omitted]?, personal research, the eigengrau gestalt hyperaware of time passing and unawareness, video of duration and visitor interaction, content site no need self made tech rider proposal
+- Like my nyha site, even making the obvious more obvious does not make this visualizer and can make backwards the locational media keywords via google something api maybe 
+- I have no idea how to make this program esp in the sense of wrapping it into a ksuite something front button link is it effective and or possible to attach python script to vba?
+
+
 
 - The third iteration, for strictly the calendar for further research from the advantages of being able to represent large trends visually
 
