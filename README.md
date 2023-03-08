@@ -1,6 +1,6 @@
 # pendingindefinitelydostponed 
 
-- i will give free sex possibly paid sex to the person whom helps me find the person whom has been for a few days at this current point (3/4/23) monitoring me 
+- please giv credit if 
 
 pendingindefinitelydostponeduntiliuselesswastetileuncompensatedlymake
  i am a scriptzygote.  
@@ -20,6 +20,16 @@ The formalist to structural logistical incentives for explaining the extantly re
 
 Already informally proposed expanded accessibility options and magnifying handouts for elderly museum label reading   
 
+- the formulas for saving every lost game idea not to forward to the team if fsnyouknow that made undefeatable indefatiguable chesscat or, easier, and previously tested in some iterations, within different move benchmarks, the means of flipping every goh game (personally only done 9x9 multiple early times) with one stone, including resituation of game; makes Save Game in every situation optionality in expanded tables takes much trial and error ugh someone else is uniquely qualified to research that
+although however, the chains of blocks that can be the permutations of goh are far larger therefore there is a de-distributions of possible eyes, measurable ranges of permutative reactions, human impulses w/o deterministic metrics, the sector markings, utilizing no biases of player profiles is possible?... location of first stone not as much an importance as how visual primacy makes long term trend patterns much more interesting than linear or 3d graphs ref consumer tv channels devoted to lol goh games, chess games, free real courses, and video game tournaments,
+
+some day there might be a legal way to see representative consumer televisions of every country, for lolcultural purposes 
+[dictators of capitacommunist/capitasocialist/fsc/spcst/fscpcst systems try to destroy/ruin/disenfranchise/render'useless'/render'useful' comedians/artists/writers no one needs tropeism, stereotypes, and taboos]
+they put my already actively in danger very tiny family by distrusting the truth, truths, and via comparative notevenwhigpriv devaluations, fsn* unjustified paranoias, even illegal in its source country
+
+make sure there isn't a situation of lingua franca applied only to you know everything wrong about politics
+
+- 
 
 sexracks: a simple vba script that makes move cursor space across lol like a robot learning to touch itself 
 
