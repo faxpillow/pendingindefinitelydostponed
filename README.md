@@ -1,6 +1,6 @@
 # pendingindefinitelydostponed 
 
-- please giv credit if 
+please giv credit if 
 
 pendingindefinitelydostponeduntiliuselesswastetileuncompensatedlymake
  i am a scriptzygote.  
