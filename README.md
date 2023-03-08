@@ -29,9 +29,7 @@ they put my already actively in danger very tiny family by distrusting the truth
 
 make sure there isn't a situation of lingua franca applied only to you know everything wrong about politics
 
-- 
-
-sexracks: a simple vba script that makes move cursor space across lol like a robot learning to touch itself 
+xracks: a simple vba script that makes move cursor space across lol like a robot learning to touch itself 
 
 I was considering being able to circumvent establishment politics to fundraise for a small community fund: 
  
