@@ -10,6 +10,8 @@ I can find or rebuild my unitmilk, the pastel toned monitor wrapper beautiful al
 
 Automatic Anti Bigot Action Generator simple input algorithm lol, including self stopping and spouting profanities at folx bulldozing folks thru red lights  
 
+Soft margin visualizer of regions regarding how many votes your vote is worth adjustable view lol old idea 
+
 site of celebrations in every country photos w sources when unhappy or free dance then gift to osram documentarian  :)
 
 Longest minority blanket across the city (one min film fest q concept or fwd to eruv)
