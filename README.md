@@ -8,6 +8,8 @@ i am sorry i am not a programmer nor ever presumed myself one MADE ALL MY OWN SI
 1-minute Film Festival 1a. Obtain Social Media Followers for this 1b. Instagram Account current: @awesomeinvestingdecisions password: awesome23 @wallstbanners
 I can find or rebuild my unitmilk, the pastel toned monitor wrapper beautiful always reactive on every background somewhat tedious, the small exe that drops tinysmoll snow piles on the screen with did I mention already? sry that was from a few decades ago, and I was cannot build compiler at that Boolean age before compilers or visual c everything is in any book why not etc
 
+Automatic Anti Bigot Action Generator simple input algorithm lol, including self stopping and spouting profanities at folx bulldozing folks thru red lights  
+
 site of celebrations in every country photos w sources when unhappy or free dance then gift to osram documentarian  :)
 
 Longest minority blanket across the city (one min film fest q concept or fwd to eruv)
